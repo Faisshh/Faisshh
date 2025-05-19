@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Faisshh
+- 👋 Hi, I’m @Faisl shhoob
 - 👀 I’m interested in programming and security 
 - 🌱 I’m currently learning  AI 
 I'm looking to collaborate on Artificial intelligence companies
